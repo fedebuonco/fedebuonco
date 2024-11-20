@@ -1,4 +1,4 @@
-## Hi there :point_right: :point_left:
+## Hi There :point_right: :point_left:
 
 Born in Rome 🇮🇹 ☀️
 
